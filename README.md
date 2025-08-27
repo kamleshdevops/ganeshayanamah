@@ -1,0 +1,2 @@
+# ganeshayanamah
+MY PRAcTICE
